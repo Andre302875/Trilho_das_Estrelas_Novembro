@@ -1,1 +1,0 @@
-# Trilho_das_Estrelas_Novembro
